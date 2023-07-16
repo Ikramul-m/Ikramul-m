@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Ikramul-m
+- 👋 Hi, I’m ikr@m
 - 👀 I’m interested in Coding & Problem Solving
 - 📫 How to reach me https://www.instagram.com/ikram0026/
 
