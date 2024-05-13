@@ -1,6 +1,6 @@
 - 👋 Hi, I’m ikr@m
 - 👀 I’m interested in Coding & Problem Solving
-- 📫 How to reach me at 👉👉 https://www.instagram.com/yalmaz616/
+- 📫 How to reach me at 👉👉 https://www.instagram.com/brother_ikram
 - Programmer || Developer 😊
 - Loves Boxing🥊🥊🥊
 <!---
