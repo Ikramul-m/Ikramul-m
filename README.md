@@ -1,7 +1,7 @@
 - 👋 Hi, I’m ikr@m
 - 👀 I’m interested in Coding & Problem Solving
 - 📫 How to reach me at 👉👉 https://www.instagram.com/brother_ikram
-- Programmer || Developer || Lawyer😊
+- Programmer || Developer 
 - Loves Boxing🥊🥊🥊
 <!---
 Ikramul-m/Ikramul-m is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
